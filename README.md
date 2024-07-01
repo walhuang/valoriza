@@ -1,0 +1,2 @@
+# valoriza
+apenas dor
